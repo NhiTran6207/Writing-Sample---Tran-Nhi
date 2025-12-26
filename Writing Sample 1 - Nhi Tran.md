@@ -9,3 +9,5 @@ In addition to academic changes, university life also introduces new social resp
 Adjusting to university life come with challenges that contributes to personal growth. Balancing coursework, social activities, and personal responsibility can be overwhelming sometimes. When facing difficulty, clear communication help students express concern, manage stress, and seeking support from peers or instructor. These challenge have taught me how to reflect on my experience and communicate more thoughtful. As a result, I become more confident in handling new situations and taking responsibility for my decisions.
 
 Overall, my transition into university life has shown me the importance of clear communication in both academic and personal contexts. Communication helps students succeed in their studies, build meaningful relationships, and navigate challenges with confidence. These skills are not only essential during university but also valuable for future careers and personal development. Learning how to communicate clearly has helped me grow as a student and prepared me for the responsibilities ahead.
+
+Nhi Tran has reviewed
